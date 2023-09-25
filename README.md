@@ -15,5 +15,6 @@
 
 ### Eloizi Nogueira
 
-### Linkedin: 
+### ![image](https://github.com/Eloizi/portifolio/assets/72747420/0f0ba66d-7183-4425-a797-2dfbc858ca00)
+Linkedin: https://www.linkedin.com/in/eloizi-nogueira-da-silva/ 
 
