@@ -13,7 +13,7 @@
 
 ## Desenvolvido por:
 
-### 👩‍💻 Eloizi Nogueira
+### 💻 Eloizi Nogueira
 
 ### 💼 Linkedin: https://www.linkedin.com/in/eloizi-nogueira-da-silva/ 
 
